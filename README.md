@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @TitilopemiO  
+- 👀 I’m interested in Data analysis and Bioinformatics  
+- 🌱 I’m currently learning Data analysis  
+- 💞️ I’m looking to collaborate on Projects related to Data analysis and Bioinformatics  
+- 📫 How to reach me: Titilopemioriye@gmail.com/ https://www.linkedin.com/in/titilopemi-oriye-213188250/
+- 😄 Pronouns: She/Her  
+- ⚡ Fun fact: I love solving puzzles!
